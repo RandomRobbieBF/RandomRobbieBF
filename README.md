@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @RandomRobbieBF
 - 👀 I’m interested in ... Hacking
 - 🌱 I’m currently learning ... How to Hack
-- Looking for a job? https://bishopfox.com/jobs#open-positions
+- Looking for a job? https://bishopfox.com/jobs#open-positions - ensure you say i recommended you :D
